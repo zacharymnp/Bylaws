@@ -109,7 +109,7 @@
 
 ### Officers at Time of Ratification
 
-- Archon: Zachary Niles Peretz
+- Archon: Cynthia Wu
 - Vice President of Internal Affairs: Carsen Clark
 - Vice President of External Affairs: Kai Surlis
 - Treasurer: Camille Brent
